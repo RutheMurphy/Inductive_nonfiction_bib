@@ -32,7 +32,7 @@
 
 - Fernald, Anne. '*A Room of One's Own*, Personal Criticism, and the Essay', *Twentieth Century Literature*, 40: 2 (summer 1994), pp. 165-189.
 
-- Heyne, Eric. 'Toward a Theory of Literary Nonfiction', *Modern Fiction Studies*, 33:3 (Autumn 1987), pp. 479-490. 
+- Heyne, Eric. 'Toward a Theory of Literary Nonfiction', *Modern Fiction Studies*, 33:3 (autumn 1987), pp. 479-490. 
 
 - hooks, bell. *Ain’t I a Woman: Black Women and Feminism* (New York: Routledge, 2015; first edn 1981).
 
